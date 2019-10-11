@@ -1,0 +1,2 @@
+# chinamini
+ちなみに
